@@ -15,4 +15,4 @@ ogórek kiszony 60g - a moze byc zwykly?
 schab pieczony 30g - 30 gramow.. 30 ? :P Plaser czegos.
 ###lancz
 czekoladaaa
-ciasto
+ciasto z pączkiem 
